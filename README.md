@@ -1,4 +1,2 @@
-📧[arteagaberenice87@gmail.com](arteagaberenice87@gmail.com)
-
-
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Welcome+to+my+Github!;Lets+program+together!+)](https://git.io/typing-svg)
 
